@@ -16,8 +16,8 @@ I'm a **Finance Professional** with a background in **Economics (B.Sc.) and Fina
 
 🚀 Always looking for exciting opportunities in **quantitative finance, algorithmic trading, and risk modeling**.
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/diego-jara-487716272/)  
-- 📩 [Email](mailto:diego.jara265@gmail.com)  
+- 💼 LinkedIn: [Diego Jara](https://www.linkedin.com/in/diego-jara-487716272/)  
+- 📩 Email: [diego.jara265@gmail.com](mailto:diego.jara265@gmail.com)  
 
 --
 
