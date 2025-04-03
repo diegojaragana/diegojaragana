@@ -10,6 +10,7 @@ I'm a **Finance Professional** with a background in **Economics (B.Sc.) and Fina
 - 🖥️ **Technical Skills:** Python, R, MATLAB, SQL, and VBA.
 - 📡 **Market Enthusiast:** Always exploring trading strategies, statistical arbitrage, and alternative data.
 - 🎵 **Beyond Finance:** Passionate drummer, philosophy enthusiast, and traveler
+
 --
 
 ## 📫 Connect with Me
@@ -18,6 +19,7 @@ I'm a **Finance Professional** with a background in **Economics (B.Sc.) and Fina
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/diego-jara-487716272/)  
 - 📩 [Email](mailto:diego.jara265@gmail.com)  
+
 
 --
 
