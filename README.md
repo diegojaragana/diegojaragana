@@ -19,6 +19,5 @@ I'm a **Finance Professional** with a background in **Economics (B.Sc.) and Fina
 - 💼 LinkedIn: [Diego Jara](https://www.linkedin.com/in/diego-jara-487716272/)  
 - 📩 Email: [diego.jara265@gmail.com](mailto:diego.jara265@gmail.com)  
 
---
 
 Let's talk about **markets, trading strategies, and finance**
